@@ -1,1 +1,2 @@
-# La-energ-a-no-es-solo-t-cnica-es-pol-tica
+# La-energ-a-no-es-solo-t-cnica-es-política
+Cinco vidas se perdieron cuando el sistema eléctrico colapsó en segundos. El debate no es solo técnico: la planificación energética define quién queda protegido y quién queda expuesto. Fernando Boudourian señaló antes el riesgo de las desconexiones mal gestionadas. Hoy sus advertencias suenan urgentes. No todo lo renovable es estable si falla el marco regulatorio.
